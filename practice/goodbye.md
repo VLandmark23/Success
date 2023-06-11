@@ -1,0 +1,2 @@
+goodbye friend
+goodnight
